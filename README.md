@@ -1,1 +1,1 @@
-THIS IS THE FIRST STATUS OF THE GAME
+fuck you Ledio
